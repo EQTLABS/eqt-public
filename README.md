@@ -21,7 +21,7 @@ Core features include:
 #### 💡 Collaborate
 We’re assembling a small, talented team of developers, designers, and strategists to build the future of investment facilitation.  
 Interested in joining or collaborating?  
-Connect via [LinkedIn](https://linkedin.com) or email **info@eqtplatform.com**.
+Connect via [LinkedIn](https://www.linkedin.com/company/eqt/) or email **labeqt@gmail.com**.
 
 ---
 
